@@ -1,1 +1,1 @@
-will add solutions of  questions soon
+will add Solutions of  Questions soon
